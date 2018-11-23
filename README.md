@@ -1,3 +1,3 @@
 # The Unswear Ptoject
-## Purpouse
-embrace yourself your prayers is about get unsweared
+## Purpose
+embrace yourself your prayers are about to get unsweared
